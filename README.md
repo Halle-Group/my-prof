@@ -25,10 +25,10 @@
 
   📫 How to reach me:  
   Mail me at "onosaito0614@gmail.com"
+  By skype "live:.cid.b7a7092abd562fa0"
   <!-- through website https://codewhiteweb.thedev.id/contact -->
 
 <!-- ⚡ Fun fact: 7 out of 10 consumers find a company via the blog -->
-
 
 <!-- <h3>Connect with me:</h3>
 <p>
